@@ -1,3 +1,3 @@
 # Training
 
-Fuck La Police!
+La Vie est Belle!
